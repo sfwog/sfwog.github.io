@@ -4,3 +4,4 @@
 - [[Hoshina Meito]勇者妹妹的冒险结束了！](./dir/2.md)
 - [[Hoshina Meito] 修女In色情陷阱迷宫](./dir/3.md)
 - [[caburibbon (caburi)] 純粋艤装性能試験任務](./dir/4.md)
+- [[caburibbon (caburi)] 純粋艤装性能試験任務改](./dir/5.md)
