@@ -9,3 +9,4 @@
 - [[caburibbon (caburi)] S.S.S.DI](./dir/7.md)
 - [[caburibbon (caburi)] S.S.S.DI2](./dir/8.md)
 - [[caburibbon (caburi)] s.s.s スマート催眠セックス](./dir/9.md)
+- [[caburibbon (caburi)] s.s.s.h](./dir/10.md)
