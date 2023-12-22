@@ -6,7 +6,7 @@
 - [[Hoshina Meito]仮想童話は危険がいっぱい!?血塗れの悪い子](./dir/14.md)
 - [[Hoshina Meito] 淫魔達の遊戯 ～イったら終わりの一週間～ ](./dir/15.md)
 - [[Hoshina Meito] 茉莉ちゃんの人生終了生配信](./dir/16.md)
-- [Hoshina Meito]仮想童話は危険がいっぱい!?夢見がちな少女編](./dir/19.md)
+- [[Hoshina Meito]仮想童話は危険がいっぱい!?夢見がちな少女編](./dir/19.md)
 - [[Hoshina Meito]Play Doll .B (リーグ・オブ・レジェンド)](./dir/20.md)
 - [[caburibbon (caburi)] 純粋艤装性能試験任務](./dir/4.md)
 - [[caburibbon (caburi)] 純粋艤装性能試験任務改](./dir/5.md)
