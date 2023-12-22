@@ -7,3 +7,4 @@
 - [[caburibbon (caburi)] 純粋艤装性能試験任務改](./dir/5.md)
 - [[caburibbon (caburi)] s.s.s. MONO2](./dir/6.md)
 - [[caburibbon (caburi)] S.S.S.DI](./dir/7.md)
+- [[caburibbon (caburi)] S.S.S.DI2](./dir/8.md)
