@@ -5,7 +5,7 @@
 - [[Hoshina Meito] 修女In色情陷阱迷宫](./dir/3.md)
 - [[Hoshina Meito]仮想童話は危険がいっぱい!?血塗れの悪い子](./dir/14.md)
 - [[Hoshina Meito] 勇者ちゃんの冒険は終わってしまった!](./dir/15.md)
-- [Hoshina Meito] 茉莉ちゃんの人生終了生配信(./dir/16.md)
+- [[Hoshina Meito] 茉莉ちゃんの人生終了生配信](./dir/16.md)
 - [[caburibbon (caburi)] 純粋艤装性能試験任務](./dir/4.md)
 - [[caburibbon (caburi)] 純粋艤装性能試験任務改](./dir/5.md)
 - [[caburibbon (caburi)] s.s.s. MONO2](./dir/6.md)
