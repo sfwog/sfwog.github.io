@@ -16,4 +16,5 @@
 - [[caburibbon (caburi)] エクスター・アイリス 催眠怪人に敗れる](./dir/11.md)
 - [[caburibbon (caburi)] S.S.S.X](./dir/12.md)
 - [[満開開花]JS魔法少女がオナホ少女になっちゃうお話](./dir/13.md)
-- [[karory]妹と(●●で)イチャイチャする本](./dir/17.md)
+- [[karory]妹と(催眠で)イチャイチャする本](./dir/17.md)
+- [[karory]妹と(催眠で)イチャイチャする本2](./dir/18.md)
