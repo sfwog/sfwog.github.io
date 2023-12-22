@@ -13,3 +13,4 @@
 - [[caburibbon (caburi)] エクスター・アイリス 催眠怪人に敗れる](./dir/11.md)
 - [[caburibbon (caburi)] S.S.S.X](./dir/12.md)
 - [[満開開花]JS魔法少女がオナホ少女になっちゃうお話](./dir/13.md)
+- [[Hoshina Meito]仮想童話は危険がいっぱい!?血塗れの悪い子](./dir/14.md)
