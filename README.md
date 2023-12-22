@@ -2,6 +2,7 @@
 # SFW本子博客
 - [[SAKURAYA (赤身)] ブリュンヒルデ討滅戦](./dir/1.md)
 - [[Hoshina Meito]勇者妹妹的冒险结束了！](./dir/2.md)
+- [[Hoshina Meito] 小勇者的另外两个结局](./dir/21.md)
 - [[Hoshina Meito] 修女In色情陷阱迷宫](./dir/3.md)
 - [[Hoshina Meito]仮想童話は危険がいっぱい!?血塗れの悪い子](./dir/14.md)
 - [[Hoshina Meito] 淫魔達の遊戯 ～イったら終わりの一週間～ ](./dir/15.md)
