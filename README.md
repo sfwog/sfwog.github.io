@@ -11,3 +11,4 @@
 - [[caburibbon (caburi)] s.s.s スマート催眠セックス](./dir/9.md)
 - [[caburibbon (caburi)] s.s.s.h](./dir/10.md)
 - [[caburibbon (caburi)] エクスター・アイリス 催眠怪人に敗れる](./dir/11.md)
+- [[caburibbon (caburi)] S.S.S.X](./dir/12.md)
